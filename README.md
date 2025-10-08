@@ -1,0 +1,2 @@
+# blooket-hacks
+ALL CREDITS TO 05Konz, I DID NOT MAKE THIS
